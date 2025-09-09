@@ -10,4 +10,4 @@
 ## Instructions
 - Add all ingredients in pot.
 - Cook at medium (3 mark).
-- Serve on a deep dish.
+- Serve on a dessert bowl.
